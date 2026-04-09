@@ -7,3 +7,4 @@
  
  ![17757023022819215306944103511904](https://github.com/user-attachments/assets/d64299d4-09c2-478c-8c8b-36783c86c22e)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka&weight=500&pause=1000&color=4EF7E8&center=true&width=435&lines=My+Clematis;Stay+forever;By+my+side.)](https://git.io/typing-svg)
